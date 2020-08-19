@@ -8,3 +8,12 @@
 - Pour the melted chocolate slowly and gently on top of the ganache cake and gentle spread around ensuring that some part dip over the edge to give the appearance of chocolate weeping down the sides.
 - Decorate with anything you like on top such as chopped pistachio, raspberry, rose petals etc etc
 Best served in small slices as its so rich and kept in the fridge so it holds its form. Enjoy!
+
+## Ingredients
+- 350 g soaked cashews (250g before soaking)
+- 100 g coconut oil
+- 50 ml maple syrup
+- 40 ml coffee (to add another flavour dimension use cold earl grey tea or mint tea if preferred)
+- 30 ml water
+- 150 g dark choc (54% cacao solids with no dairy)
+- 1 tbsp vanilla
